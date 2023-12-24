@@ -1,1 +1,2 @@
 degisiklik sart
+değiştirdim hocam
